@@ -1,4 +1,4 @@
-- 👋 Hi Im @Faffie23
+- 👋 Hi Im @Faffie22
 - 👀 I;m interested in everything fun
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on anything 
